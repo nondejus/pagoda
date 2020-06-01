@@ -1,2 +1,0 @@
-# hardrock-bejaardencentrum
-voor volkszangers
